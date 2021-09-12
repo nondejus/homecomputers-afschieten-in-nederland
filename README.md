@@ -1,1 +1,0 @@
-# 24-uur-per-dag-homecomputers-afschieten-in-nederland
